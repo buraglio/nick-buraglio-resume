@@ -1,1 +1,1 @@
-# nick-buraglio-resume
+# Professional Resume / C.V. for Nick Buraglio 
